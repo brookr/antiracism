@@ -1,4 +1,4 @@
-# I will be Antiracist
+# I am Antiracist
 
 My name is Brook Riggio, and I am striving to live antiracist principles. 
 
